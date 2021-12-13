@@ -3,3 +3,7 @@
 -kolmas muokkaus
 -neljas muokkaus
 -viides muokkaus
+-kuudes muokkaus
+-seitsemas muokkaus
+-kahdeksas muokkaus
+-yhdeksas muokkaus
