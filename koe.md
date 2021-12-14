@@ -1,0 +1,5 @@
+-aognaogja
+-migajg
+-nfanfa
+-aoingag
+-nsfokna
