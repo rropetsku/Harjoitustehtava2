@@ -1,2 +1,4 @@
 -aognaogja
 -migajg
+-nfanfa
+-aoingag
